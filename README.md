@@ -1,6 +1,6 @@
 # Agario Unblocked Game Web Adress
 ![Agario Unbblocked](https://i1.wp.com/www.atandme.com/wp-content/uploads/2016/01/agariodownload-home.jpg)
-# [Agario Unblocked](https://agar2.live/)
+## Click To Play # [Agario Unblocked](https://agar2.live/)
 
 -------------------------------
 **Agario** is a popular online game that has been entertaining gamers of all ages for years. The game is simple to play, yet challenging enough to keep players hooked for hours. Agario is a game where players control a cell and try to consume other smaller cells to become the largest cell on the board. With its addicting gameplay, it’s no wonder why players have been searching for agario unblocked games.
